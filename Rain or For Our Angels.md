@@ -13,8 +13,9 @@ The rain
 Will wash away our pain  
 And we  
 Will never be the same  
-We'll fight until we live  
 We'll fight until we breathe  
+We'll fight until we live  
+
 
 And when our time will comes   
 Dont be afraid of anything  
@@ -26,10 +27,10 @@ The rain
 Will wash away our pain  
 And we  
 Will never be the same  
+We'll fight until we breathe  
 We'll fight until we live  
-We'll fight until we breathe 
 
-And when your time is running out  
+And when your life is running out  
 When you have no streght to carry on  
 Remember you hold the light of all us  
 You fight this battle with all us  
