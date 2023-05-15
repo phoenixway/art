@@ -39,7 +39,7 @@ The rain
 Will wash away the fate!  
 And we all forever remain!  
 We'll fight until we live  
-We are forever free!  
+We'll fight until we breathe  
 We'll fight  
 Until  
 We  
