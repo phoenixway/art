@@ -6,7 +6,7 @@ Will never be the same
 When the time stops running out  
 And my hands are cold as ice  
 My light'll shine  
-From your hearts  
+From your hearts!  
 Despite evil, fears and lies  
 
 The rain  
@@ -14,7 +14,7 @@ Will wash away our pain
 And we  
 Will never be the same  
 We'll fight until we live  
-We'll fight until last breath  
+We'll fight until we breathe  
 
 And when our time пауза will comes  
 Dont be afraide of пауза anything  
@@ -27,7 +27,7 @@ Will wash away our pain
 And we  
 Will never be the same  
 We'll fight until we live  
-We'll fight until last breath  
+We'll fight until we breathe 
 
 And when your time is running out  
 And when you have no streght to carry on  
