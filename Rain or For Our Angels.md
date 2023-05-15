@@ -3,10 +3,11 @@ Will wash away our pain
 And we  
 Will never be the same  
 
-And when the time stops running out  
-and when your hands are cold as ice  
-My way will shine light from your heart  
-And i cant feel the fear overdise  
+When the time stops running out  
+And my hands are cold as ice  
+My light'll shine
+From your hearts  
+Despite evil, fears and lies  
 
 The rain  
 Will wash away our pain  
