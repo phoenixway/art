@@ -16,11 +16,11 @@ Will never be the same
 We'll fight until we live  
 We'll fight until we breathe  
 
-And when our time will comes  
-Dont be afraid of anything
-We're warriors of Light
-Forever fighting death
-We'll live in all kind, good and great!  
+And when our time will comes   
+Dont be afraid of anything  
+We're warriors of Light  
+Forever fighting death  
+We'll live in all great, kind and free!    
 
 The rain  
 Will wash away our pain  
