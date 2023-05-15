@@ -5,7 +5,7 @@ Will never be the same
 
 When the time stops running out  
 And my hands are cold as ice  
-My light'll shine
+My light'll shine  
 From your hearts  
 Despite evil, fears and lies  
 
