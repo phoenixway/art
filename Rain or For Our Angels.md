@@ -34,7 +34,7 @@ You fight this battle with all us
 And burn down darksness for us all!!  
 
 The rain  
-Will wash away a hate
+Will wash away a hate  
 And love  
 Will always be the same
 The rain  
