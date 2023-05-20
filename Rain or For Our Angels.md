@@ -36,7 +36,7 @@ And burn down darksness for us all!!
 The rain  
 Will wash away a hate  
 And love  
-Will always be the same
+Will always be the same  
 The rain  
 Will wash away the fate!  
 And we all forever will remain!  
