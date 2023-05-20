@@ -1,38 +1,31 @@
-The rain  
-Will wash away our pain  
-And we  
-Will never be the same  
-
 When the time stops running out  
 And my hands are cold as ice  
-My light'll shine  
-From your hearts!  
+My light'll shine from your hearts!  
 Despite evil, fears and lies  
 
 The rain  
 Will wash away our pain  
 And we  
 Will never be the same  
-We'll fight until we breathe  
+We'll fight 'til we breathe  
 We'll fight until we live  
-
 
 And when our time will comes   
 Dont be afraid of anything  
-We're warriors of Light  
-Forever fighting death!  
+Warriors of Light forever fighting death!  
 We'll live in all great, kind and free   
 
 The rain  
 Will wash away our pain  
 And we  
 Will never be the same  
-We'll fight until we breathe  
+We'll fight 'til we breathe  
 We'll fight until we live  
 
-And when your life is running out  
+When your life is running out  
 When you have no streght to carry on  
-Remember you hold the light of all us  
+Remember 
+You hold the light of all us  
 You fight this battle with all us  
 And burn down darksness for us all!!  
 
